@@ -1,2 +1,2 @@
 # SuperTracy
-my own blog lidongxiao.live
+my own blog www.lidongxiao.live
